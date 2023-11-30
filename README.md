@@ -19,3 +19,5 @@ vamos mais. vamos ganhar!
 precisa mais umas vezes ainda!
 
 4x Guga
+
+3x now
