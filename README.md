@@ -8,7 +8,7 @@ contract cairo Stark
 
 
 adicionando muita coisa
-wowowowowo
+wowowowowo uy
 
 eu gosto disso mais 7x
 tá quase 6
